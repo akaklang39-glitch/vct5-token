@@ -1,4 +1,4 @@
-
+![Logo VCT5] 1794291904477.jpg
 # VESPA CLASSIC T5 ($VCT5)
 
 Vespa Classic T5 ($VCT5) is a community-driven token inspired by the iconic 5-transfer port 2-stroke scooter. Built for speed, classic style, and the true retro enthusiasts in the crypto space.
